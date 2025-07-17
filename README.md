@@ -37,4 +37,4 @@ Whether you’re a competitive player or just curious about your numbers, Global
 
 ---
 
-Thanks for stopping by. If you love bots or care about data like I do, you’re in the right place 🚀
+Thanks for stopping by. If you wanna reach out to me dm me on tiktok @ynwglobal or @quoteswrld9
