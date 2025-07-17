@@ -33,7 +33,7 @@ Whether you’re a competitive player or just curious about your numbers, Global
 
 - 🌐 Website: [GlobalStats.xyz](https://globalstats.xyz)  
 - 🐙 GitHub: [@ynwsource](https://github.com/ynwsource)  
-- 📧 Email: globalmenudev@proton.me
+- 📧 Email: support@globalstats.xyz
 
 ---
 
